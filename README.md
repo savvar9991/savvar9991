@@ -1,4 +1,4 @@
-## Hi there 👋
+## A strong believer in the power of Web3 and the decentralized future. I’m passionate about connecting with like-minded individuals within the crypto community, sharing knowledge, and collaborating on exciting projects. Let’s build the future together! 👋
 
 <!--
 **savvar9991/savvar9991** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
