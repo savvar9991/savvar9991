@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 👯 I collaborate with other creators, sharing ideas and working together on projects using Discord and various messaging platforms such as Warp.
 - 🤔 I can help you decide which cryptocurrencies to invest in
 - 💬 Ask me about web3 
-- 📫 How to reach me: Warpcast:@savanator; Telegram: https://t.me/Akrobao; 
+- 📫 How to reach me: Warpcast:@savanator; Telegram: https://t.me/Akrobao; Twitter:@toretotel177800
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I started Forex trading in 2012 and didn’t make a single cent using leverage. In 2023, I started spot investing, and things are finally going well
 -->
